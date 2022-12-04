@@ -1,3 +1,9 @@
+--NOT MY SCRIPT I DID NOT MAKE THIS--
+--NOT MY SCRIPT I DID NOT MAKE THIS--
+--NOT MY SCRIPT I DID NOT MAKE THIS--
+--NOT MY SCRIPT I DID NOT MAKE THIS--
+--NOT MY SCRIPT I DID NOT MAKE THIS--
+
 ([[
                 This script has been licensed using Luauth
             Unauthorized distribution of this script is forbidden.
